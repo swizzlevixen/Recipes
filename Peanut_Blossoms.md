@@ -1,6 +1,6 @@
 # Peanut Blossoms
 
-*Taken from a photocopied page of a larger cookbook. Seems like it may have been from a Pillsbury cooking contest, hence all of the brand names. (Substitutions are not a problem, though. Plus, I think the Heavy Duty Foil may be a bit of a stretch, in terms of necessity.) If you want my opinion, though, I recommend **Jif Creamy peanut butter.***
+*Taken from a photocopied page of a larger cookbook. Seems like it may have been from a Pillsbury cooking contest, hence all of the brand names. (Substitutions are not a problem, though. Plus, I think the Heavy Duty Foil may be a bit of a stretch, in terms of necessity.) If you want my opinion, though, I recommend **Jif Creamy peanut butter**.*
 
 *Presented in its original interleaved format.*
 
@@ -42,4 +42,4 @@ dough into balls using a rounded teaspoonful for each. Roll balls in **sugar** a
 
 in moderate oven (375º) 10 minutes. Remove from oven. Top each cookie with a solid **milk chocolate candy kiss,** pressing down firmly so cookie cracks around edge. Return to oven; bake 2 to 5 minutes longer until golden brown. Store in flat container covered with **"quilted" Kaiser Heavy Duty Foil.**
 
-**If you use Pillsbury's Best Self-Rising Flour, omit soda and salt.*
+\* *If you use Pillsbury's Best Self-Rising Flour, omit soda and salt.*
