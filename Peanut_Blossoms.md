@@ -1,5 +1,7 @@
 # Peanut Blossoms
 
+![Grand National Senior Winner](https://forkingrecipes.s3.amazonaws.com/uploads/recipe_image/image/543/open-uri20131118-2-14tlbec)
+
 *Taken from a photocopied page of a larger cookbook. Seems like it may have been from a Pillsbury cooking contest, hence all of the brand names. (Substitutions are not a problem, though. Plus, I think the Heavy Duty Foil may be a bit of a stretch, in terms of necessity.) If you want my opinion, though, I recommend* ***Jif Creamy peanut butter.***
 
 *Presented in its original interleaved format.*
