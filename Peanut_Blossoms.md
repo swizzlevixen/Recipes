@@ -1,6 +1,6 @@
 # Peanut Blossoms
 
-*Taken from a photocopied page of a larger cookbook. Seems like it may have been from a Pillsbury cooking contest, hence all of the brand names. (Substitutions are not a problem, though. Plus, I think the Heavy Duty Foil may be a bit of a stretch, in terms of necessity.) If you want my opinion, though, I recommend **Jif Creamy peanut butter**.*
+*Taken from a photocopied page of a larger cookbook. Seems like it may have been from a Pillsbury cooking contest, hence all of the brand names. (Substitutions are not a problem, though. Plus, I think the Heavy Duty Foil may be a bit of a stretch, in terms of necessity.) If you want my opinion, though, I recommend* **Jif Creamy peanut butter**.*
 
 *Presented in its original interleaved format.*
 
